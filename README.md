@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Navjinder-singh
+- 👀 I’m interested in data science
+- 🌱 I’m currently learning SQL
+- 📫 linkedin.com/in/navjindersingh
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Intrested in Learning out of syllabus..
