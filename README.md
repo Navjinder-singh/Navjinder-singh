@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning SQL
 - 📫 linkedin.com/in/navjindersingh
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Intrested in Learning out of syllabus..
+- ⚡ Fun fact: Intrested in learning the things which are out of syllabus..
